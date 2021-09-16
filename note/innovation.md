@@ -1,0 +1,8 @@
+Big corporations have an in-built tendency to reinforce past success. 
+
+
+So, you're in a big corporation. You're obviously keen to go up the corporate ladder. Do you go into your board and say, "Look, I've got a fantastic idea for an embryonic product in a marginal market, with consumers we've never dealt with before, and I'm not sure it's going to have a big payoff, but it could be really, really big in the future?" No, what you do, is you go in and you say, "I've got a fantastic idea for an incremental innovation to an existing product we sell through existing channels to existing users, and I can guarantee you get this much return out of it over the next three years."
+
+
+
+Big corporations have an in-built tendency to reinforce past success. They've got so much sunk in it that it's very difficult for them to spot emerging new markets. Emerging new markets, then, are the breeding grounds for passionate users. Best example: who in the music industry, 30 years ago, would have said, "Yes, let's invent a musical form which is all about dispossessed black men in ghettos expressing their frustration with the world through a form of music that many people find initially quite difficult to listen to. That sounds like a winner; we'll go with it." (Laughter). So what happens? Rap music is created by the users. They do it on their own tapes, with their own recording equipment; they distribute it themselves. 30 years later, rap music is the dominant musical form of popular culture -- would never have come from the big companies. Had to start -- this is the third point -- with these pro-ams.
